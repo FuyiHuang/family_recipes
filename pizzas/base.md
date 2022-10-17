@@ -7,6 +7,7 @@
 - teaspoon slat
 - 2 cups of water
 
+
 ## steps
 
 - mix everything
